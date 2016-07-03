@@ -35,3 +35,4 @@ Really excited about it by the way, I always really enjoy FAC dinners but they u
 - Calendar links for the events
 - Mailing list
 - Eventbrite tickets if necessary
+- Add an FAQ
