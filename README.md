@@ -5,7 +5,7 @@ Hi! This is a thing I have wanted to do for ages and now it's time to put it in 
 ___
 
 **Date:**  
-Once a month, around the same date. I am currently thinking the Wednesday before LNUG, so second last Wednesday of every month. Time will be around 7/8pm.  
+Once a month, around the same date. I am currently thinking the Wednesday before LNUG, so second last Wednesday of every month. Time will be around 7/8pm. (Except this month (July) which will be mid-month!)  
 
 **Location:**  
 Different place every time hopefully, suggestions are wildly encouraged, with a preference for menus that have good vegetarian/vegan support.  
@@ -25,7 +25,7 @@ Really excited about it by the way, I always really enjoy FAC dinners but they u
 \- Ronan
 
 ### NEXT EVENT
-**Date:** 8pm, Wednesday 20th July (Numbers finalised by ~13th)  
+**Date:** 8pm, Wednesday 13th July (Numbers finalised by week before)  
 **Location:** [Tayyabs](http://www.tayyabs.co.uk/) (Reasons: Big tables, East London, BYOB, non-meat options)  
 
 [Book a place now!](http://doodle.com/poll/auy9hn6y8ua42c3r)
