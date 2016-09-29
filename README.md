@@ -8,6 +8,9 @@ A monthly dinner for FAC contributors, alumni and friends!
 ___
 
 ### NEXT EVENT
-**Date:** After business meeting, Wednesday, 5th October  
-**Location:** TBD, probably a Hoxton Vietnamese place  
-**Booking Status:** N/A
+**Date:** 8pm, Wednesday, 5th October  
+**Location:** [Mien Tay](http://mientay.co.uk/122-kingsland-rd-shoreditch-restaurant/)  
+**Booking Status:** Booked! (for 20)  
+**Details** This restaurant is BYO so don't forget your hipster beers, also there are two Mien Tay restaurants in Shoreditch so make sure you're going to the right one!  
+
+[Sign up here!](http://doodle.com/poll/99epuiebzv2bur58)
