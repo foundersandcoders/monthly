@@ -8,9 +8,9 @@ A monthly dinner for FAC contributors, alumni and friends!
 ___
 
 ### NEXT EVENT
-**Date:** 8pm, Wednesday, 5th October  
-**Location:** [Mien Tay](http://mientay.co.uk/122-kingsland-rd-shoreditch-restaurant/)  
-**Booking Status:** Booked! (for 20)  
-**Details** This restaurant is BYO so don't forget your hipster beers, also there are two Mien Tay restaurants in Shoreditch so make sure you're going to the right one!  
+**Date:** 8pm, Wednesday, 2nd November  
+**Location:** TBC, East London  
+**Booking Status:** Open!  
+**Details** N/A 
 
-[Sign up here!](http://doodle.com/poll/99epuiebzv2bur58)
+[Sign up here!](http://doodle.com/poll/yg4beh5dbwmqsc2x)
