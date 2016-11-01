@@ -8,9 +8,7 @@ A monthly dinner for FAC contributors, alumni and friends!
 ___
 
 ### NEXT EVENT
-**Date:** 8pm, Wednesday, 2nd November  
-**Location:** TBC, East London  
-**Booking Status:** Open!  
-**Details** N/A 
-
-[Sign up here!](http://doodle.com/poll/yg4beh5dbwmqsc2x)
+**Date:** 7.30pm, Wednesday, 2nd November  
+**Location:** [Pizza Buzz](https://www.google.com/maps/place/PizzaBuzz/@51.522215,-0.086291,15z), East London  
+**Booking Status:** Booked!  
+**Details** Table booked for 10, can probably be stretched.  
